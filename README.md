@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @deliuxass
+- 👀 Developer since 2019
+- ✨ My discord: _deliuxas
